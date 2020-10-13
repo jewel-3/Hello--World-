@@ -1,2 +1,2 @@
 # Hello--World-
-Something Neeeded for John 
+Something Neeeded for John So the guid is telling me i have to write a short sory about myself and than leave a commint. Saying why i had felt like i needed to change the file. So i guess let me start by saying my name is jewel wellington and i am only 21 years old i have no kids and am not married quite yet. My boyfriend name is john and i am vary happy with him and i hope to one day marry him. I cant wait for the day he says is going to be the one day i will never truly forget.
